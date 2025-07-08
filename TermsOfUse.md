@@ -46,8 +46,8 @@ We may modify these Terms from time to time. If we make material changes, we wil
 
 ## 9. Governing Law
 
-These Terms shall be governed and construed in accordance with the laws of [Your State/Country], without regard to its conflict of law provisions.
+These Terms shall be governed and construed in accordance with the laws of Canada, without regard to its conflict of law provisions.
 
 ## 10. Contact Us
 
-If you have any questions about these Terms, please contact us at [Your Email Address].
+If you have any questions about these Terms, please contact us at leekiereloo@gmail.com.
